@@ -4,6 +4,7 @@ Maham Waheed
 Biochemistry & Biotechnology undergraduate — molecular biology, microbiology and cancer genomics<br> University of Lahore · Lahore, Pakistan
 
  waheedmaham352@gmail.com
+ https://www.linkedin.com/in/maham-waheed-2b5085337/
 
 About
 
